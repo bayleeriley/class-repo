@@ -1,4 +1,4 @@
-# *Course Introduction*
+# *Course Introduction* [Baylee] (https://photos.google.com/photo/AF1QipNh9pLF4D46GwR0YYA9PKSc9qjcWxz1ZNEwIiGV) 
 
 A full syllabus is available in Canvas.
 
