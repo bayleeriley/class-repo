@@ -1,4 +1,4 @@
-# Course Introduction*
+# *Course Introduction*
 
 A full syllabus is available in Canvas.
 
